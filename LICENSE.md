@@ -1,4 +1,4 @@
-
+vip Script for pull lucky blocks offers the most advanced pull lucky blocks Script, with auto-sell and esp. Perfect for dominating any match.
 
 
 
